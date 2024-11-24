@@ -4,7 +4,7 @@
 - 💞️ I’m looking to explore on github
 - 📫 You can reach me OakGhost98@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: Someone's fantasy is someone's reakuty
+- ⚡ Fun fact: Someone's fantasy is someone's reality
 
 <!---
 OakGhost98/OakGhost98 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
